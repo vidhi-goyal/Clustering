@@ -1,1 +1,6 @@
-# Clustering
+![image](https://github.com/user-attachments/assets/1912416d-761b-4f96-ae61-a95b111849df)
+![image](https://github.com/user-attachments/assets/597a62a1-27ea-4402-be77-3fa31872cfe8)
+![image](https://github.com/user-attachments/assets/db91f9cc-1ebf-4bd5-b14b-99672686e542)
+![image](https://github.com/user-attachments/assets/c7c0e464-a2e6-40b1-bfc8-4fb7dab135de)
+![image](https://github.com/user-attachments/assets/68b26a3b-9c7d-49a9-8e6e-901c8ac398ca)
+![Uploading image.png…]()
